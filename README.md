@@ -3,7 +3,7 @@
 ## What is Balatro?  
 Balatro is an innovative poker-inspired roguelike deck-building game that blends traditional poker mechanics with deep strategy. Players build decks, form poker hands, and use unique Joker cards to progress through increasingly challenging levels.
 
-## [Download Balatro Mod APK ♠️ Game Now](https://www.dogapk.com/paid/balatro-mod-apk-0-4-unlimited-currency-score/)
+## [Download Balatro Mod APK ♠️ Game Now](https://www.dogapk.com/games/paid/balatro-mod-apk-0-4-unlimited-currency-score/)
 ![Balatro Mod APK](https://play-lh.googleusercontent.com/IeJsinz87irFK4kWj8qVjy6uyuwmNpoGa0JET08CNeoumd7Qw8KOUFAE1iSX-wBfgA=w868)
 
 ---
@@ -18,7 +18,7 @@ Created by **LocalThunk**, Balatro combines the thrill of card games with the un
 2. **Award Nominations**: Recognized at **The Game Awards 2024** for its innovative design.  
 3. **Community Buzz**: Balatro has gained massive popularity on forums like Reddit, Steam, and beyond.  
 
-## [Download Balatro Mod APK ♠️ Game Now](https://www.dogapk.com/paid/balatro-mod-apk-0-4-unlimited-currency-score/)
+## [Download Balatro Mod APK ♠️ Game Now](https://www.dogapk.com/games/paid/balatro-mod-apk-0-4-unlimited-currency-score/)
 ![Balatro Mod APK](https://play-lh.googleusercontent.com/E9VzNlpxotPon4WKhQNAEMom1BHceqFlsXe-f8qTE6G2vG-4FP2Qqq8rha2k9X9RxKx8=w526-h296-rw)
 
 ---
